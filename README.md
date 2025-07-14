@@ -5,7 +5,7 @@ Hello! This repository is just information for interactions in Pony Town !!
 you can call me Ethan or whatever, my friends call me millions of different names.
 
 I turned 18 recently so sometimes I still play on the safe server. I'm always offtab out of boredom, but if you want to chat I'm always open to !!
-im I have social anxiety, so don't expect me to interact first (I will only do this if I feel really brave) 
+ I have social anxiety, so don't expect me to interact first (I will only do this if I feel really brave) 
 I prefer to talk in whisper!!
 
 If my pony starts walking randomly or flying, it's missclick or ghostclick, my phone is very old and crashes a lot 😓😓 (I'm working to buy a new one) 
