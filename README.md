@@ -16,10 +16,11 @@
 
 ── .✦ 𝐈f my pony 𝐒tarts walking randomly or flying, it's missclick or ghostclick, my phone is very old and crashes a lot [![883866848221868032.gif](https://i.postimg.cc/FRjGMTm5/883866848221868032.gif)](https://postimg.cc/G8mkYJHq) (𝐈'm working to buy a new one) 
 
-── .✦ 𝐏roshippers, 𝐃arkshippers or 𝐖eirdos dni pls
+── .✦ 𝐏roshippers, 𝐃arkshippers or 𝐖eirdos dni pls 
 𝐈t's very difficult to make me uncomfortable, but 𝐏lease respect my 𝐃ni list.
 
 ── .✦ 𝐑ead 𝐒traw𝐏age for more info!! [![tumblr-0c14bc3b0755cdffe200b619cd5db1eb-a3430dc4-75.gif](https://i.postimg.cc/vTC509Qh/tumblr-0c14bc3b0755cdffe200b619cd5db1eb-a3430dc4-75.gif)](https://postimg.cc/zHSLByHH)
+
 
 [![tumblr-6c47f64528ef7d64ca593b7623009328-d802b9fb-250.gif](https://i.postimg.cc/hG0bKfr4/tumblr-6c47f64528ef7d64ca593b7623009328-d802b9fb-250.gif)](https://postimg.cc/2qVBwjMg)
 
