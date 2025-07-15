@@ -11,6 +11,7 @@
 𝐈 prefer to talk in whisper!! [![tumblr-ad85c5710bc1fac11a98f5e374eabd7b-64e7c444-75.gif](https://i.postimg.cc/28qL3Vb3/tumblr-ad85c5710bc1fac11a98f5e374eabd7b-64e7c444-75.gif)](https://postimg.cc/QH3dyNqr)
 
 [![c2f606e4.gif](https://i.postimg.cc/43vBM8XC/c2f606e4.gif)](https://postimg.cc/NyM62kyb)
+[![19-Sem-T-tulo-20250715202919.png](https://i.postimg.cc/vZ4Wf047/19-Sem-T-tulo-20250715202919.png)](https://postimg.cc/cvNgNMM6)
           
    
 
@@ -23,4 +24,5 @@
 
 
 [![tumblr-6c47f64528ef7d64ca593b7623009328-d802b9fb-250.gif](https://i.postimg.cc/hG0bKfr4/tumblr-6c47f64528ef7d64ca593b7623009328-d802b9fb-250.gif)](https://postimg.cc/2qVBwjMg)
+[![19-Sem-T-tulo-20250715202633.png](https://i.postimg.cc/PJfDxyGw/19-Sem-T-tulo-20250715202633.png)](https://postimg.cc/346Nfgx8)
 
