@@ -1,6 +1,8 @@
 [![tumblr-7cb414b9c938fca0a23f4803212d0a93-81092a2b-250.gif](https://i.postimg.cc/TwLrXpLs/tumblr-7cb414b9c938fca0a23f4803212d0a93-81092a2b-250.gif)](https://postimg.cc/DJhWrfcQ)
+[![a3b4ea9f.gif](https://i.postimg.cc/mgfkDVW6/a3b4ea9f.gif)](https://postimg.cc/nC2pS4zv)
 
-𝐇ello .ᐟ 𐔌՞. .՞𐦯
+𝐇ello .ᐟ 𐔌՞. .՞𐦯 
+
 
 ── .✦ you can call me 𝐄than or 𝐖hatever, my friends call me millions of different names. 𝐈'm 𝐁razilian and 𝐈 speak 𝐏t-𝐁r and 𝐄ng ⭑𓂃
 
