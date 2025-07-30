@@ -4,7 +4,7 @@
 𝐇ello .ᐟ 𐔌՞. .՞𐦯 
 
 
-── .✦ you can call me 𝐄than or 𝐖hatever, my friends call me millions of different names. 𝐈'm 𝐁razilian and 𝐈 speak 𝐏t-𝐁r and 𝐄ng [![d17774e0.gif](https://i.postimg.cc/1RLHMhZC/d17774e0.gif)](https://postimg.cc/7bn0YRh0)
+── .✦ you can call me Morgan or 𝐖hatever, my friends call me millions of different names. 𝐈'm 𝐁razilian and 𝐈 speak 𝐏t-𝐁r and 𝐄ng [![d17774e0.gif](https://i.postimg.cc/1RLHMhZC/d17774e0.gif)](https://postimg.cc/7bn0YRh0)
 ⭑𓂃
 
 ── .✦ 𝐈 turned 18 𝐑ecently so 
